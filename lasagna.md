@@ -19,9 +19,13 @@
 3. Cook the bell pepper, onions and garlic, add back to beef,
 4. Boil and drain the lasagna noodles,
 5. Assemble the lasagna in a lasagna dish,
-6. Now bake.
+6. Now bake
+7. Then eat!
+8. MMMMMMMM!!!!
 
 ## Nutrition Value
 * Total Fat: 10%,
 * Total Carbohydrate: 20%,
 * Total Protein: 70%.
+
+
